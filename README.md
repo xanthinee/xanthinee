@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @xanthinee
-- 👀 I’m interested in politics, football and formula1.
+- 👀 I’m interested in many things.
 - 🌱 I’m currently learning how to code with java!
 - 💞️ I’m not looking for any collaborations.
 - 📫 How to reach me: dont't think you will need it.
